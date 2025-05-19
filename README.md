@@ -1,5 +1,2 @@
 - 👋 Hi, I’m @memerish
-- 👀 I’m interested in Entrepreneurship, Cyber Security and Comedy 
-- 🌱 I’m currently learning Ethical hacking 
-- 💞️ I’m looking to collaborate on Instagram 
-- 📫 How to reach me insta- @_memerish_ 
+- 👀 I’m interested in Entrepreneurship, Coding, and Project Management.
