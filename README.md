@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @memerish
+- 👋 Hi, I’m Harish Gahlot
 - 👀 I’m interested in Entrepreneurship, Coding, and Project Management.
